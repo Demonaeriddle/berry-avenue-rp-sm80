@@ -1,4 +1,4 @@
-#  
+#  Experience berry avenue rp like never before with updated Script for berry avenue rp, the #1 Script. Includes auto-collect and no clip for unbeatable
 
 
 
